@@ -1,1 +1,1 @@
-Student at the University of Freiburg
+currently employed at the University of Freiburg
